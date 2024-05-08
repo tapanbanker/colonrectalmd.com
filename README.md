@@ -1,2 +1,11 @@
-# colonrectalmd.com
-Dr. Astha Bhatt, Colon and Rectal Surgeon, Broward County, Florida, USA, Colon and Rectal Surgeon
+# Colon and Rectal Surgeon www.colonrectalmd.com
+Astha Bhatt, MD is a Board-certified General surgeon and fellowship-trained in Robotic Colorectal surgery in Minimal Invasive Surgery. She is a [Colorectal Surgeon](www.colonrectalmd.com) and proctologist covering Fort Lauderdale, FL, Pompano Beach, FL, Deerfield Beach, FL, Wilton Manor, FL, Oakland Park, FL, Davie, FL, Plantation, FL, Coral Springs, FL, Margate, FL, Coconut Creek, FL and surrounding area of Broward County, FL.
+
+Dr. Bhatt is specialized in using the most advanced Robotic and Laparoscopic innovative surgical techniques covering all aspects of Colon Cancer, from diagnosis via Colonoscopy to complete treatment of any Colon Rectal diseases.
+## Colorectal Surgeon in Fort Lauderdale, FL, Pompano Beach, FL, Deerfield Beach, FL, Wilton Manor, FL, Oakland Park, FL, Davie, FL, Plantation, FL, Coral Springs, FL, Margate, FL, Coconut Creek, FL and surrounding area of Broward County, FL
+Dr. Bhatt from Colorectal MD LLC has undergone extensive training and education to acquire the skills needed to perform complex surgeries and provide comprehensive care for patients with colorectal disorders.
+
+As a patient, it is essential to have confidence in your healthcare provider, especially when it comes to complex medical conditions. When it comes to colorectal diseases and surgeries, Dr. Astha Bhatt is a name that stands out. Dr. Bhatt is a highly skilled and experienced Colorectal Surgeon who specializes in providing exceptional surgical care. With her expertise, compassion, and dedication, she has earned a reputation as one of the leading colorectal surgeons in in Fort Lauderdale, FL, Pompano Beach, FL, Coral Springs, FL, Margate, FL, Wilton Manor, FL, Oakland Park, FL, North Fort Lauderdale, FL
+
+### Astha Bhatt, MD| Colon and Rectal Surgeon | https://www.colonrectalmd.com 
+Colorectal health plays a vital role in overall well-being, yet it is often overlooked or ignored. Conditions such as colorectal cancer, hemorrhoids, and inflammatory bowel disease can significantly impact a person’s quality of life. By prioritizing colorectal care, individuals can detect and treat these conditions early, leading to better outcomes and improved long-term health. Regular screenings and consultations with a skilled colorectal surgeon like Dr. Astha Bhatt are essential for maintaining optimal colorectal health.
