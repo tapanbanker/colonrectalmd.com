@@ -18,3 +18,16 @@ Subheadline: Dr. Astha Bhatt Launches Robotic Surgery Practice in Broward [Color
 Located at 660 S Federal Highway, Suite 100, Pompano Beach, FL, 33062, Colon Rectal MD serves patients from Fort Lauderdale, FL, Coral Springs, FL, Margate, FL, Coconut Creek, FL and surrounding areas. Dr. Bhatt is recognized for her expertise in treating complex colorectal diseases, including colon cancer, diverticulitis, hemorrhoids, rectal prolapse, anal abscess, perianal fistula, anal fissures, Crohn’s disease, ulcerative colitis, fecal incontinence, in addition to gallbladder disease and hernia surgery employing cutting-edge techniques to ensure optimal patient outcomes.
 “With over 5800 successful cases, my goal is to provide tailored treatments that leverage the precision of robotic surgery to reduce recovery times and improve quality of life for my patients,” 
 
+
+For additional information or to schedule a consultation, please contact:
+
+# Dr. Astha Bhatt, MD
+Colon Rectal MD
+660 S Federal Highway, Suite 100
+Pompano Beach, Florida 33064
+Phone: +1 (954) 388 0860
+Email: info@colonrectalmd.com
+# Website: www.colonrectalmd.com
+About Dr. Astha Bhatt and Colon Rectal MD:
+
+Dr. Astha Bhatt is a board-certified general surgeon and a fellowship-trained expert in robotic colon and rectal surgery based in Pompano Beach and Fort Lauderdale, Florida. Her practice, Colon Rectal MD, specializes in comprehensive diagnostic treatments and surgery for all aspects of colon and rectal health, providing state-of-the-art care to patients throughout South Florida.
